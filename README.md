@@ -51,5 +51,5 @@ Key Learnings
 Author
 
 Vanisree A
-📧 Email: VanisreeAshok743@gmail.com
+📧 Email: Vanisreeashok7431@gmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/Vanisree-a-97104a373
